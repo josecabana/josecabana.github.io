@@ -1,2 +1,0 @@
-# josecabana.github.io
-Site
